@@ -1,9 +1,10 @@
 # hello-world
 
-Git clone
+Hi noobs
+ Chisom here my first just trying it out I play basketball and stuff.
 
 
-https://github.com/thelinuxchoice/blackeye
-
+I love doing any thing that makes me happy and makes me money
+Chisom signing out✌️
 
 
